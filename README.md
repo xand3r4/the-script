@@ -1,1 +1,1 @@
-# the-script
+SCHOOL COUMPUTER CRASHER
